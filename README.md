@@ -1,6 +1,6 @@
 
 
-#### Title: Render Unto Caesar
+#### Title: Render With Justice
 
 **Chapter 1: A Heavy Burden**
 
